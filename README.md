@@ -1,4 +1,6 @@
 ![gallery](https://github.com/SeanZhang425/Project-CLIF/assets/146991529/ea4025aa-5a04-42f1-a317-0346de043bb2)
+![gallery (1)](https://github.com/SeanZhang425/Project-CLIF/assets/146991529/d4483dda-fc5b-494d-96a8-f921f3be43ed)
+
 
 ## About the Project
 
